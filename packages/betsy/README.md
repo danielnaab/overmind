@@ -1,3 +1,0 @@
-# betsy
-
-To be filled
